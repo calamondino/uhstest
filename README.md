@@ -1,2 +1,1 @@
-phong er lur
-
+Tirsdag før 11 
