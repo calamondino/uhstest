@@ -1,1 +1,1 @@
-Tirsdag før 11 
+Tirsdag før 12 
